@@ -6,7 +6,7 @@
  1. What kind of consistency do you want?
  1. Do you like raisins?
 
-The reason to keep the questions in mind is, if you go over on any of them your desrt could be ruined.
+The reason to keep the questions in mind is, if you go over on any of them your desert could be ruined.
 Based on your personal prefferences play with the consistency you like.
 
 Preperation time 5 minutes
