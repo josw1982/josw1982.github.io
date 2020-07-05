@@ -3,23 +3,28 @@
  ## Arroz Con Leche
  Things to keep in mind.
  1. How sweet you like it?
- 1. What kind of consistency do you like?
- 1. Doy you like raisins?
- The reason to keep the questions in mind is, if you go over on any of them your desrt could be ruined.
-I cant know what you prefferences are but you will have to play with the consistency you like.
-## Ingreadeants
-1. Cinnamon sticks
-1. 6 Cups of whater
-1. 2 Cups of Short-grain rise
-1. 2 Cup whole milk
-1. 1 14-ounce can of condenced milk
-1. 1 12-ounced can of evaporated milk
-1. 1 Cup raisins
-1. 1 Tbsp Vanilla extract
-1. 3 Tbsp white sugar
-1. Ground cinnamon, for dusting
+ 1. What kind of consistency do you want?
+ 1. Do you like raisins?
+The reason to keep the questions in mind is, if you go over on any of them your desrt could be ruined.
+Based on your personal prefferences play with the consistency you like.
 
-Time to prepare 5 minutes, Cook Time 38 Total 43 give or take on your prefferences
+Preperation time 5 minutes
+Cook time 38 minutes
+Total time 43 minutes
+
+## Ingreadeants
+Cinnamon sticks
+6 Cups of whater
+2 Cups of Short-grain rise
+2 Cup whole milk
+1 14-ounce can of condenced milk
+1 12-ounced can of evaporated milk
+1 Cup raisins
+1 Tbsp Vanilla extract
+3 Tbsp white sugar
+Ground cinnamon, for dusting
+
+
 Have two pots one to prepare the the other the milk.
 Place one pot with water medium temperature till boil place the rice, cinnamon sticks in together stir till an aldenti feel for the rice.
 At the same time the pot with water has been placed, plase your second pot on a very low heat. pour your milk, condenced milk, evaporated milk, sugar and vanila extract in and stir till properly desolved. 
