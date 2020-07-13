@@ -1,10 +1,10 @@
- # Welcome to my page 
- ## I will teach you how to make a Mexican desert 
- ## Arroz Con Leche
- Things to keep in mind.
- 1. How sweet you like it?
- 1. What kind of consistency do you want?
- 1. Do you like raisins?
+# Welcome to my page 
+## I will teach you how to make a Mexican desert 
+## Arroz Con Leche
+Things to keep in mind.
+1. How sweet you like it?
+1. What kind of consistency do you want?
+1. Do you like raisins?
 
 The reason to keep the questions in mind is, if you go over on any of them your desert could be ruined.
 Based on your personal prefferences play with the consistency you like.
