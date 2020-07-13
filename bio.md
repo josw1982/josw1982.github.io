@@ -13,8 +13,8 @@ Personal goals
 1. Learn from my mistakes
 1. Be financially well off
 
-# desire to be able to do this at home.
-![Expresso](
+# Desire to be able to do this at home but with chocolate milk.
+![Expresso](5B10AF98-8BD5-42FF-B494-7B4A2AB9C435_1_105_c.jpeg)
 
 Countries I have visited
 1. Mexico
