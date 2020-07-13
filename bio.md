@@ -36,4 +36,4 @@ I love experiencing new cultures it allowes you to view the world trough a diffe
 
 ## Links
 
-Check out my [index.md] (https://github.com/josw1982/josw1982.github.io/blob/master/index.md)
+Check out my [index.md] (index.md)
