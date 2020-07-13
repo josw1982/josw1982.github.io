@@ -1,4 +1,4 @@
-#Bio
+# Bio
 Jose Miranda
 
 ![Family](6CF8B5AB-F7C0-4D18-95E0-626B076A3605_1_105_c.jpeg)
@@ -32,4 +32,4 @@ Activities
 1. Spending time with friends
 1. Spending time by my self
 
-
+Checkout my[index.md] (index)
