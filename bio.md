@@ -1,5 +1,8 @@
-Jose Miranda Bio
+#Bio
+Jose Miranda
+
 Born in Los Angeles CA Apr 5 1982
+
 I have lived in many places and very greatfull that I have been able to see the places I have.
 My regret is that I will not get to see everything this world has to offer.
 I love experiencing new cultures it allowes you to view the world trough a different lense.
