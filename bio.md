@@ -1,5 +1,4 @@
-# Bio
-# Jose Miranda
+# Jose Miranda Bio
 
 ![Family](6CF8B5AB-F7C0-4D18-95E0-626B076A3605_1_105_c.jpeg)
 # Born in Los Angeles CA Apr 5 1982
