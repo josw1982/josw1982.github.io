@@ -5,7 +5,7 @@
 
 I have lived in many places. I am very greatfull that I was allowed the opportunity to experience the cultures and sights.
 My regret is that I will not get to see everything this world has to offer.
-I love experiencing new cultures it allowes you to view the world trough a different lense.
+I love experiencing new cultures it allowes me to view the world trough a different lense.
 
 ## Personal goals
 1. Become a better person
