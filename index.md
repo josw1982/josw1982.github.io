@@ -25,10 +25,8 @@ Total time 43 minutes
 + 3 Tbsp white sugar
 + Ground cinnamon, for dusting
 
-! [pre mix](A9DC9024-9042-423E-A184-9453744E699A_1_105_c.jpeg) ![milk mix](8896108C-EADC-48A1-8870-08879359AE06_1_105_c.jpeg)
-
 Have two pots one to prepare the the other the milk.
 Place one pot with water medium temperature till boil place the rice, cinnamon sticks in together stir till an aldenti feel for the rice.
 At the same time the pot with water has been placed, plase your second pot on a very low heat. pour your milk, condenced milk, evaporated milk, sugar and vanila extract in and stir till properly desolved. 
 Once you get the rice to an ideal feel transffer to a strainner, once streinned place in the milk pot and stir for 10 minutes. It will get thicker the longer you cook it and store it in your refrigerator.  
-![Arroz Con Leche] (
+![Arroz Con Leche](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcheforopeza.com.mx%2Farroz-con-leche%2F&psig=AOvVaw1PGscQWLoBK9NIe8E9yKBx&ust=1594731792992000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJiOqoKlyuoCFQAAAAAdAAAAABAO)
