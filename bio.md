@@ -3,7 +3,7 @@
 ![Family](6CF8B5AB-F7C0-4D18-95E0-626B076A3605_1_105_c.jpeg)
 # Born in Los Angeles CA Apr 5 1982
 
-I have lived in many places and very greatfull that I have been able to see the places I have.
+I have lived in many places. I am very greatfull that I was allowed the opportunity to experience the cultures and sights.
 My regret is that I will not get to see everything this world has to offer.
 I love experiencing new cultures it allowes you to view the world trough a different lense.
 
@@ -12,6 +12,9 @@ Personal goals
 1. Get a Degree
 1. Learn from my mistakes
 1. Be financially well off
+
+# desire to be able to do this at home.
+![Expresso](
 
 Countries I have visited
 1. Mexico
