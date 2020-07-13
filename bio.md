@@ -34,4 +34,4 @@ Activities
 1. Spending time with friends
 1. Spending time by my self
 
-Checkout my[index.md] (https://github.com/josw1982/josw1982.github.io/blob/master/index.md)
+Checkout my [index.md] (https://github.com/josw1982/josw1982.github.io/blob/master/index.md)
