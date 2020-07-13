@@ -1,8 +1,8 @@
 # Bio
-Jose Miranda
+# Jose Miranda
 
 ![Family](6CF8B5AB-F7C0-4D18-95E0-626B076A3605_1_105_c.jpeg)
-Born in Los Angeles CA Apr 5 1982
+# Born in Los Angeles CA Apr 5 1982
 
 I have lived in many places and very greatfull that I have been able to see the places I have.
 My regret is that I will not get to see everything this world has to offer.
