@@ -34,4 +34,6 @@ I love experiencing new cultures it allowes you to view the world trough a diffe
 1. Spending time with friends
 1. Spending time by my self
 
-Check out ![index.md] (https://github.com/josw1982/josw1982.github.io/blob/master/index.md)
+## Links
+
+Check out my [index.md] (https://github.com/josw1982/josw1982.github.io/blob/master/index.md)
