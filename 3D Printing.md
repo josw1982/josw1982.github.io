@@ -20,4 +20,6 @@ The first ever 3D printer looked like this:
 ![3D Printer](3d-systems-sla.jpg)
 
 3D printers you can get today for a fraction of the original price.
-![Now}(
+
+![Now](imporesora_creality3d_cp-01_modular_3_en_1_impresora_3d_laser_cnc_01_l.jpg)
+
