@@ -14,6 +14,9 @@ I love traveling
 Please visit my Bio or first Blog.
 
 ## Links
+
 [bio](bio)
+
+[blog](topic)
 
 [Arroz con leche](topic)
