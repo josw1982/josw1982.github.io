@@ -1,0 +1,6 @@
+# Hello World
+## My name is Jose, I would like to go on a journey with you. 
+I am going to start a blog hopefully I can get you to come along for the ride. I plan on speaking about different topics computers, finances, food, etc...
+I know it is all over the place but that is my life and my interest. Let me know if you are interested in covering a topic or you would like my thoughts.
+
+I love traveling
