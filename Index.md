@@ -4,3 +4,4 @@ I am going to start a blog hopefully I can get you to come along for the ride. I
 I know it is all over the place but that is my life and my interest. Let me know if you are interested in covering a topic or you would like my thoughts.
 
 I love traveling
+![ocean](45AF4B34-BC40-444A-8132-C7A6CBAEC522_1_105_c.jpeg)
