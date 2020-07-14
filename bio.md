@@ -36,4 +36,4 @@ I love experiencing new cultures it allowes me to view the world trough a differ
 
 ## Links
 
-Check out my [index](index.md)
+Check out my [home](index.md)
