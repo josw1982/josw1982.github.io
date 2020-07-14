@@ -35,7 +35,7 @@ Once you get the rice to an ideal feel transffer to a strainner, once streinned 
 ![bottle](526087A3-27FE-4E11-9461-F4EA61DFBB0C_1_105_c.jpeg)
 
 # Links
-[Bio](bio)
+[bio](bio)
 
 [blog](topic)
 
