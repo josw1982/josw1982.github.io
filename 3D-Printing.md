@@ -23,3 +23,10 @@ The first ever 3D printer looked like this:
 
 ![Now](imporesora_creality3d_cp-01_modular_3_en_1_impresora_3d_laser_cnc_01_l.jpg)
 
+# Links
+
+[bio](bio)
+
+[Arroz con leche](topic)
+
+[home](index)
