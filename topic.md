@@ -30,6 +30,9 @@ Place one pot with water medium temperature till boil place the rice, cinnamon s
 At the same time the pot with water has been placed, plase your second pot on a very low heat. pour your milk, condenced milk, evaporated milk, sugar and vanila extract in and stir till properly desolved. 
 Once you get the rice to an ideal feel transffer to a strainner, once streinned place in the milk pot and stir for 10 minutes. It will get thicker the longer you cook it and store it in your refrigerator.  
 ![Arroz Con Leche](arroz-con-leche-sitio.jpg)
+## How I keep mine
+
+![bottle](526087A3-27FE-4E11-9461-F4EA61DFBB0C_1_105_c.jpeg)
 
 # Links
 [Bio](bio)
