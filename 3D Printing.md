@@ -15,3 +15,9 @@ In the early 1980's Engineers working in manufacturing needed a solution. The hi
 
 I have taken the liberty of adding links if you would like to read additional information about them.
 
+The first ever 3D printer looked like this:
+
+![3D Printer](3d-systems-sla.jpg)
+
+3D printers you can get today for a fraction of the original price.
+![Now}(
