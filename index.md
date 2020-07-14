@@ -17,6 +17,4 @@ Please visit my Bio or first Blog.
 
 [bio](bio)
 
-[blog](topic)
-
 [Arroz con leche](topic)
